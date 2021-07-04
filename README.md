@@ -1,2 +1,2 @@
-stou gostando demais do curso.
+Estou gostando demais do curso.
 O material e os professores são incríveis.
